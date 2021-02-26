@@ -1,2 +1,2 @@
-![Image of Yaktocat](https://octodex.github.com/images/yaktocat.png)
-"Taktocat"
+![Face of the Ancestors](https://sfada.com/wp-content/uploads/2018/12/The-Acnestral-Helmet.jpg)
+
